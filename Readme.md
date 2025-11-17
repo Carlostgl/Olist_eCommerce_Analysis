@@ -119,8 +119,6 @@ Black Friday 2017 generated $1.15M in peak revenue. Planning Q4 campaigns earlie
 
 ## **Contact Me**
 
-Looking for **Entry Data Analyst** opportunities in **Ho Chi Minh City**  
-
 👨‍💻 Gia Lac Tien (Carlos)  
 ✉️ Email: tgialac1712@gmail.com  
 💼 LinkedIn: linkedin.com/in/gialactien  
